@@ -1,4 +1,4 @@
 Hello, I'm Auden Davis. 
 
-I'm a student @ Northeasther University
+I'm a student @ Northeasthern University
 
